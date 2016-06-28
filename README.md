@@ -34,3 +34,21 @@
  https://cad.onshape.com/documents/0103bfe3fc4acdeb4162e65c/w/ce85345ba3833c24f4cb247f/e/d59ca74c39734145e77c07fa 
 
 網際 3D 正齒輪傳動模擬 (一) 心得 :
+
+
+組員 : 40328227 
+
+期末報告 心得 :
+
+自行車傳動 2D 鏈條繪圖 (二) :
+
+自行車傳動 2D 鏈條繪圖 (二) 心得 :
+
+網際 2D 正齒輪傳動囓合繪圖 :
+
+網際 2D 正齒輪傳動囓合繪圖 心得 :
+
+網際 3D 正齒輪傳動模擬 (一) onshape :
+ https://cad.onshape.com/documents/0103bfe3fc4acdeb4162e65c/w/ce85345ba3833c24f4cb247f/e/d59ca74c39734145e77c07fa 
+
+網際 3D 正齒輪傳動模擬 (一) 心得 :
